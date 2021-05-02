@@ -1,0 +1,5 @@
+First we need a container or a bowl. There we have to put a bowl.
+Then we put butter inside it.Then we put flour. Then we put the backing powder and sugar and melted chocolate bar.
+Then we have to mix it really well. Then you have to check the consistency of the batter. Then we have to put  it into a spearte container. Then we will put that in a microwave to bake. Then we have to prepare the granche. Then we have to put container into the gas.
+Now in the container we have to put some water.Now we have to place a bowl above the container. And in the container we will be placing the chocolate inside the container. Then we will mix well. Then we have to check if the granche is slippery or shining.
+Take the cake out of the oven. Then make it really cold and make it to the room tempereature. Then put the granache over the cake and the cake is down.
